@@ -13,4 +13,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-<img src="https://thumbs.gfycat.com/ExemplaryBelovedEuropeanfiresalamander-size_restricted.gif" width="100%" height="100px"/>
+<img src="https://media1.tenor.com/images/b37aa7ad8e0cf6db913dcc4974ceea45/tenor.gif?itemid=13741595"/>
